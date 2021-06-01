@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @goldiamond08
 - 👀 I’m interested in Java/Ai
 - 🌱 I’m currently learning Java/Ai
-- 💞️ I’m looking to collaborate on Nothing st the moment
+- 💞️ I’m looking to collaborate on Nothing at the moment
 - 📫 How to reach me, goldiamond08@gmail.com
